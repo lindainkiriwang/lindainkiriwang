@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on pursuing projects in US
 - 📫 How to reach me : +13323228858
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I am currently working for a US Engineering compay and am managing and pursuing projects in California, USA from Indonesia
+- ⚡ Fun fact: I am currently working for a US Engineering compay and I am managing and pursuing projects in California, USA from Indonesia
 
 <!---
 lindainkiriwang/lindainkiriwang is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
